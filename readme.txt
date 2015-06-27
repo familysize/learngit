@@ -1,3 +1,4 @@
-github is a mother fucking piece of shit!!
-Sorry for the language my man
-You ok back there?
+github is just fucking bullshit.
+I'm done with this app
+I will switch to git windows
+wait what im i using?
