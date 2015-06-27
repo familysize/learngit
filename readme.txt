@@ -6,3 +6,4 @@ I am uing git for windows already?
 oh my
 sorry
 I will swtich to github!
+git tracks changes of files
