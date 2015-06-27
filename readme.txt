@@ -3,8 +3,8 @@ I'm done with this app
 I will switch to git windows
 wait what im i using?
 I am uing git for windows already?
+
 oh my
 sorry
 I will swtich to github!
 git tracks changes of files motherfuckers!
-Katie is the sexiest boss ever
